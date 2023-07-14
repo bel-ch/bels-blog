@@ -2,7 +2,7 @@
 name: Isabel Sihan Chen
 occupation: Director @ Hatch Art Gallery | Events @ Vancouver Pride
 email: bel888chen@gmail.com
-linkedin: www.linkedin.com/in/isabel-chen-686596165
+linkedin: https://www.linkedin.com/in/isabel-chen-686596165
 avatar:
 ---
 
