@@ -18,14 +18,20 @@ I am passionate about asking more questions than I have time to answer. Some que
 
 ## Present:
 
+Arts and culture events planning. Writing. Independent research. Chopping wood and urban farming. Currently reading Orthodoxy by GK Chesterton, and Zen and Motorcycle Maintenance by Robert Pirsig. And other stuff that I'll keep underwraps for now because I like to maintain some mystery!
+
 ## Past:
 
 In past lives I:
 
 1. Did debate and public speaking on stages around the world.
-2. With little entrepreneurship/innovation experience, I started a non-profit for entrepreneurship and innovation. I got to consult cool companies as well as build products and startups.
-3. Made a podcast!
+2. With little entrepreneurship/innovation experience, I co-founded a non-profit for entrepreneurship and innovation. I got to consult cool companies, create fun events, as well as build products.
+3. Made a podcast on art, philosophy, social commentary, and literature! Actually, it isn't that deep. It's just 2-3 hour long chats with people I like about random things.
 4. Was a DeFi girlie @ Intellabridge Tech
 5. Was a finance/swe girlie @ GAF
 
 ## Future:
+
+I would like to be able to do a pull up. Also go to space!
+
+The possibilities are endless.
