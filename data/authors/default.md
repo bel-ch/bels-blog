@@ -11,7 +11,7 @@ Hi friends! Call me Bel.
 I am passionate about asking more questions than I have time to answer. Some questions that move me are:
 
 1. How do individuals and collectives evolve through the engagement within different spaces?
-2. What is consciousness? Where does it come from? How does it evolve in individuals? How did it developme over the course of human evolution?
+2. What is consciousness? Where does it come from? How does it evolve in individuals? How did it develop over the course of human evolution?
 3. What is Qualia?
 4. How do we address fragmentation in our postmodern world?
 5. How do I become the best version of myself? :)
