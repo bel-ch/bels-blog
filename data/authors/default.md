@@ -1,16 +1,16 @@
 ---
-name: Tails Azimuth
-avatar: /static/images/avatar.png
-occupation: Professor of Atmospheric Science
-company: Stanford University
-email: address@yoursite.com
-twitter: https://twitter.com/Twitter
-linkedin: https://www.linkedin.com
-github: https://github.com
+name: Isabel Sihan Chen
+occupation: Director @ Hatch Art Gallery | Events @ Vancouver Pride
+email: bel888chen@gmail.com
+linkedin: www.linkedin.com/in/isabel-chen-686596165
+avatar:
 ---
 
-Tails Azimuth is a professor of atmospheric sciences at the Stanford AI Lab. His research interests includes complexity modelling of tailwinds, headwinds and crosswinds.
+Hi friends! Call me Bel.
 
-He leads the clean energy group which develops 3D air pollution-climate models, writes differential equation solvers, and manufactures titanium plated air ballons. In his free time he bakes raspberry pi.
+I am passionate about asking more questions than I have time to seek answers for. Some questions that move me are:
 
-Lorem ipsum dolor sit amet, consectetur adipiscing elit. Sed neque elit, tristique placerat feugiat ac, facilisis vitae arcu. Proin eget egestas augue. Praesent ut sem nec arcu pellentesque aliquet. Duis dapibus diam vel metus tempus vulputate.
+1. How do individuals and collectives evolve through the engagement of different spaces
+2. What is consciousness? Where does it come from? How does it evolve in individuals? How did it development over the course of human evolution?
+3. What is Qualia?
+4. How do we address fragmentation in our postmodern world?
