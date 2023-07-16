@@ -20,7 +20,7 @@ Always down to chat about anything! Let's go grab some good food and go on a sce
 
 ## Present:
 
-Creating community spaces of creativity, discourse, and play. Writing essays that I'll take more than eternity to complete. Independent research trying to figure out what question it is I am asking. Alot of pontificating. Chopping wood and urban farming for fun. Currently reading Orthodoxy by GK Chesterton, and Zen and Motorcycle Maintenance by Robert Pirsig. Other stuff that I'll keep underwraps because I like to maintain some mystery!
+Creating community spaces of creativity, discourse, and play. Writing essays that I'll take more than eternity to complete. Independent research. No answers, still trying to figure out the question. Alot of pontificating. Chopping wood and urban farming for fun. Currently reading Orthodoxy by GK Chesterton, and Zen and Motorcycle Maintenance by Robert Pirsig. Other stuff that I'll keep underwraps because I like to maintain some mystery!
 
 ## Past:
 
@@ -29,8 +29,9 @@ In past lives I:
 1. Did debate and public speaking on stages around the world.
 2. With little entrepreneurship/innovation experience, I co-founded a non-profit for entrepreneurship and innovation. I got to consult cool companies, create fun events, as well as build products.
 3. Made a podcast on art, philosophy, social commentary, and literature! Actually, it isn't that deep. It's just 2-3 hour long chats with people I like about random things.
-4. Was a DeFi girlie @ Intellabridge Tech
-5. Was a finance/swe girlie @ GAF
+4. Lead teams and curated marketing strategies @ Intellabridge Tech
+5. Built software and managed finances @ GAF
+6. Built a carbon zero building @ UBC with Third Quadrant Design
 
 ## Future:
 
