@@ -16,7 +16,7 @@ I am passionate about asking more questions than I have time to answer. Some que
 4. How do we address fragmentation in our postmodern world?
 5. How do I become the best version of myself? :)
 
-Always down to chat about anything! Let's go grab some good food and go on a scenic walk. I mean it!
+Always down to chat!
 
 ## Present:
 
@@ -27,7 +27,7 @@ Creating community spaces of creativity, discourse, and play. Writing essays tha
 In past lives I:
 
 1. Did debate and public speaking on stages around the world.
-2. With little entrepreneurship/innovation experience, I co-founded a non-profit for entrepreneurship and innovation. I got to consult cool companies, create fun events, as well as build products.
+2. With little entrepreneurship/innovation experience, I co-founded a non-profit for entrepreneurship and innovation. I got to consult cool companies, create fun events, as well as build products. @SparkathonBB
 3. Made a podcast on art, philosophy, social commentary, and literature! Actually, it isn't that deep. It's just 2-3 hour long chats with people I like about random things.
 4. Lead teams and curated marketing strategies @ Intellabridge Tech
 5. Built software and managed finances @ GAF
