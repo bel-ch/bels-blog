@@ -16,9 +16,11 @@ I am passionate about asking more questions than I have time to answer. Some que
 4. How do we address fragmentation in our postmodern world?
 5. How do I become the best version of myself? :)
 
+Always down to chat about anything! Let's go grab some good food and go on a scenic walk. I mean it!
+
 ## Present:
 
-Arts and culture events planning. Writing. Independent research. Chopping wood and urban farming. Currently reading Orthodoxy by GK Chesterton, and Zen and Motorcycle Maintenance by Robert Pirsig. And other stuff that I'll keep underwraps for now because I like to maintain some mystery!
+Creating community spaces of creativity, discourse, and play. Writing essays that I'll take more than eternity to complete. Independent research. Chopping wood and urban farming for fun. Currently reading Orthodoxy by GK Chesterton, and Zen and Motorcycle Maintenance by Robert Pirsig. Other stuff that I'll keep underwraps because I like to maintain some mystery!
 
 ## Past:
 
