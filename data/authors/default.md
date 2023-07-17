@@ -20,7 +20,7 @@ Always down to chat!
 
 ## Present:
 
-Creating community spaces of creativity, discourse, and play. Writing essays that I'll take more than eternity to complete. Independent research. No answers, still trying to figure out the question. Alot of pontificating. Chopping wood and urban farming for fun. Currently reading Orthodoxy by GK Chesterton, and Zen and Motorcycle Maintenance by Robert Pirsig. Other stuff that I'll keep underwraps because I like to maintain some mystery!
+Creating community spaces of creativity, discourse, and play. Writing essays that I'll take more than eternity to complete. Independent research. No answers, still trying to figure out the question. Alot of pontificating. Chopping wood and urban farming for fun. Currently reading Orthodoxy by GK Chesterton, and Zen and Motorcycle Maintenance by Robert Pirsig.
 
 ## Past:
 
