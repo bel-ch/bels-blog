@@ -1,6 +1,6 @@
 ---
 name: Isabel Sihan Chen
-occupation: Director @ Hatch Art Gallery | Events @ Vancouver Pride
+occupation: Director @ Hatch Art Gallery
 email: bel888chen@gmail.com
 linkedin: https://www.linkedin.com/in/isabel-chen-686596165
 avatar:
@@ -8,19 +8,9 @@ avatar:
 
 Hi friends! Call me Bel.
 
-I am passionate about asking more questions than I have time to answer. Some questions that move me are:
-
-1. How do individuals and collectives evolve through the engagement within different spaces?
-2. What is consciousness? Where does it come from? How does it evolve in individuals? How did it develop over the course of human evolution?
-3. What is Qualia?
-4. How do we address fragmentation in our postmodern world?
-5. How do I become the best version of myself? :)
-
-Always down to chat!
-
 ## Present:
 
-Creating community spaces of creativity, discourse, and play. Writing essays that I'll take more than eternity to complete. I will try to post weekly updates on my writing. Independent research. No answers, still trying to figure out the question. Alot of pontificating. Chopping wood and urban farming for fun. Currently reading Orthodoxy by GK Chesterton, and Zen and Motorcycle Maintenance by Robert Pirsig.
+Creating community spaces of creativity, discourse, and play. Writing essays that I'll take more than eternity to complete. Don't care enough to update website. Boxing and muay thai for funz!
 
 ## Past:
 
@@ -32,6 +22,7 @@ In past lives I:
 4. Lead teams and curated marketing strategies @ Intellabridge Tech
 5. Built software and managed finances @ GAF
 6. Built a carbon zero building @ UBC with Third Quadrant Design
+7. Helped run a festival and parade @ Vancouver Pride
 
 ## Future:
 
